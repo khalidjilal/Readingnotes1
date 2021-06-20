@@ -1,6 +1,6 @@
 # Reading Notes
 
-## introductinon my self
+## introduction my self
 
 my name is khalid i am 29 years old, studied economic at Mutah university
 
